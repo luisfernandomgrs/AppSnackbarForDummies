@@ -5,13 +5,12 @@
 ### 01:
 
 
-![image](https://user-images.githubusercontent.com/72364037/172036592-88fe39c0-3062-443b-99c5-378f268ac44d.png)
+![image](https://user-images.githubusercontent.com/72364037/172036768-6a627a2e-d2ac-443a-8af8-972ba14caae1.png)
 
 
 ### 02:
 
 
-![image](https://user-images.githubusercontent.com/72364037/172036599-0760e9bb-e2c4-4d28-a3f0-ef928ca6d12f.png)
 
 
 ### 03:
